@@ -1,1 +1,1 @@
-New to programming, doesn't live cabbages.
+New to programming, doesn't like cabbages.
